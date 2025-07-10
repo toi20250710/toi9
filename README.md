@@ -10,4 +10,4 @@
 
 这些资源平台专注于亚洲专区欧美专区内容，提供国产精品、中文字幕免费视频以及高清黄色仓库影视。视频分类齐全，支持在线播放，保障用户高清流畅观看体验。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/toi20250710/toi9 ）</span>
